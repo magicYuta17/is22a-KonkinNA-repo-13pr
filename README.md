@@ -1,1 +1,1 @@
-# is22a-KonkinNA-repo-13pr
+# is22a-KonkinNA-repo-13prыаываываыва
